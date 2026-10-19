@@ -1,1 +1,0 @@
-# LTD-Spot-The-Phis-TeamCCT
